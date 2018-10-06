@@ -1,2 +1,0 @@
-aasdasdasd
-nima
