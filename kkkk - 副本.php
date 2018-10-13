@@ -1,2 +1,0 @@
-aasdasdasd
-nimaoooooooooo
